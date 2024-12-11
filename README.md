@@ -1,1 +1,1 @@
-# khateraakmal.github.io
+# khateraakmal.khateraakmal.io
